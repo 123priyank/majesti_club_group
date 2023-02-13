@@ -1,0 +1,1 @@
+# majesti_club_group
